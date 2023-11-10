@@ -14,6 +14,8 @@
 
 - 📫 How to reach me **jayaprasadgowda471@gmail.com**
 
+- 👨🏼‍🎓 Visit my profile **https://candid-semolina-4fa0a9.netlify.app/**
+
 - ⚡ Fun fact **I am Funny**
 
 <h3 align="left">Connect with me:</h3>
